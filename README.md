@@ -29,14 +29,14 @@
 
 （2020.5）
 （世界读书日看微博推荐—〉）
-* 爱你就像爱生命
+* 爱你就像爱生命-[我在荒岛上迎接黎明](https://github.com/Zrzdtc616/Reading-Notes/blob/master/爱你就像爱生命-我在荒岛上迎接黎明（2020.5）.md)
 （继续看王小波—》）
 * 黄金时代
 （王小波推荐—〉）
 * 莱蒙托夫诗文选
 
 （小红书推荐—》）
-* 如父如子
+* [如父如子](https://github.com/Zrzdtc616/Reading-Notes/blob/master/如父如子（2020.5.10-5.12）.md)
 
 （微博转发—〉）
 * 陈年喜
@@ -50,9 +50,10 @@
 * 追忆似水年华
 
 * 拜伦诗选
+* [论人类不平等的起源和基础](https://github.com/Zrzdtc616/Reading-Notes/blob/master/论人类不平等的起源和基础（2020.6）.md)
 
 （看Normal People）
 * 奥哈拉（Frank O'Hara）
 
 （晴推荐）
-* 少年凯歌
+* [少年凯歌](https://github.com/Zrzdtc616/Reading-Notes/blob/master/少年凯歌（2020.6.21-6.26）.md)
