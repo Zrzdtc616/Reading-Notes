@@ -56,4 +56,10 @@
 * 奥哈拉（Frank O'Hara）
 
 （晴推荐）
-* [少年凯歌](https://github.com/Zrzdtc616/Reading-Notes/blob/master/少年凯歌（2020.6.21-6.26）.md)
+* [少年凯歌](https://github.com/Zrzdtc616/Reading-Notes/blob/master/少年凯歌（2020.6.21-6.26）.md)  
+
+（张老师）  
+* [傲慢与偏见](https://github.com/Zrzdtc616/Reading-Notes/blob/master/傲慢与偏见（2020.9.28）.md)(2020.9-2020.11)  
+
+（nyyy-我给你从未有过信仰的忠诚-博尔赫斯）
+* [博尔赫斯](https://github.com/Zrzdtc616/Reading-Notes/blob/master/博尔赫斯（2020.11.23）.md)(2020.11)
